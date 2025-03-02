@@ -197,6 +197,3 @@ Contribuições são bem-vindas! Para contribuir:
 
 Este projeto está licenciado sob a licença MIT - veja o arquivo LICENSE para detalhes.
 
-## 📞 Contato
-
-Para dúvidas ou sugestões, entre em contato através de [seu-email@exemplo.com](mailto:seu-email@exemplo.com).
