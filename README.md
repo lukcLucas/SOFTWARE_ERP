@@ -197,3 +197,15 @@ Contribuições são bem-vindas! Para contribuir:
 
 Este projeto está licenciado sob a licença MIT - veja o arquivo LICENSE para detalhes.
 
+![Captura de tela de 2025-05-17 15-25-36](https://github.com/user-attachments/assets/ad7e1f52-d7e4-4ef3-8e00-334d24ffe6d6)
+![Captura de tela de 2025-05-17 15-27-34](https://github.com/user-attachments/assets/ee0424df-c840-47e8-8e44-38ed7ee73efd)
+
+![Captura de tela de 2025-05-17 15-29-35](https://github.com/user-attachments/assets/277c3188-e919-40d0-8b98-2be5be6fb871)
+
+![Captura de tela de 2025-05-17 15-28-14](https://github.com/user-attachments/assets/c97b15f4-abd6-40fd-bba2-76c758222ff2)
+![Captura de tela de 2025-05-17 15-28-52](https://github.com/user-attachments/assets/b4ac4287-a27c-4aab-aacd-7702ff915300)
+![Captura de tela de 2025-05-17 15-26-28](https://github.com/user-attachments/assets/1e500b00-d75a-4c90-96d6-39c111c60433)
+![Captura de tela de 2025-05-17 15-26-42](https://github.com/user-attachments/assets/b9b45f84-850d-48c2-8150-f41c709f35cd)![Captura de tela de 2025-05-17 15-27-49](https://github.com/user-attachments/assets/368eb815-a1be-4959-96b3-d60578fef559)
+
+
+![Captura de tela de 2025-05-17 15-29-13](https://github.com/user-attachments/assets/8b10a892-2228-4467-8d5b-1a06e266d4b5)
